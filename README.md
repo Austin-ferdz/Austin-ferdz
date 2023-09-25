@@ -7,8 +7,8 @@
 
 Feel free to reach out if you have questions, suggestions, or would like to collaborate. You can contact me through the following channels:
 
-- **Email:** [my contact mail](au.s.ti.n19.2k@protonmail.com)
-- **LinkedIn:**[my linkeedin profile](https://www.linkedin.com/in/austin-ferdz)
+- **Email:** [ my contact mail](au.s.ti.n19.2k@protonmail.com)
+- **LinkedIn:**[ my linkeedin profile](https://www.linkedin.com/in/austin-ferdz)
 
 I'm always open to collaboration and appreciate your feedback!
 
